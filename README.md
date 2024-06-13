@@ -4,4 +4,4 @@
 
 - estouy aprendendo na Plataforma Alura;
   
-### contato:  
+![](https://media1.tenor.com/m/zg8KpjiN28EAAAAC/damonv-vampire-diaries.gif)
